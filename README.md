@@ -1,1 +1,0 @@
-# leitura-em-dia
